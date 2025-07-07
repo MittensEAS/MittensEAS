@@ -1,1 +1,1 @@
-I make video games and stuff.
+EAS Creator and self proclaimed game dev or something
